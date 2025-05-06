@@ -13,7 +13,7 @@ Hello! I'm a curious learner from Cumilla, Bangladesh. I enjoy exploring science
 
 ---
 
-> **"Deducting yourself is the best way to find yourself."**  
+> **"Dedicating yourself is the best way to find yourself."**  
 > **"I like the journey, not the destination."**
 
 ---
