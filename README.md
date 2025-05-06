@@ -15,10 +15,6 @@ Hello! I'm a curious learner from Cumilla, Bangladesh. I enjoy exploring science
 
 > **"Dedicating yourself is the best way to find yourself."**  
 > **"I like the journey, not the destination."**
-
----
-
 ### Connect with me
-- **Email:** yourmail@example.com  
-- **Facebook:** [facebook.com/yourprofile](https://facebook.com/yourprofile)  
-- **LinkedIn:** [linkedin.com/in/yourprofile](https://linkedin.com/in/yourprofile)
+- **Email:** h.marafat1203@gmail.com  
+  
